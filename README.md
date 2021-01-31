@@ -1,1 +1,1 @@
-# Scientific-Feudalism-Minecraft-Modpack
+This mopack revolves around Tech, Magic & Adventure
